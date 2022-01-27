@@ -1,4 +1,4 @@
-Hola! Soy **Paula Calderón**, soy bacterióloga :woman_scientist::microscope: de la PUJ de Bogotá, actualmente estudiante de la maestría en Epidemiología de la 
+Hola! Soy **Paula Calderón**, soy bacterióloga :woman_scientist::microscope: de la PUJ de Bogotá; actualmente estudiante de la maestría en Epidemiología de la 
 UdeA y estoy haciendo una pasantía en el grupo Malaria :mosquito: de la universidad...
 
 Además de encantarme lo que hago, también me fascina:
