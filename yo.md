@@ -12,5 +12,5 @@ Además de encantarme lo que hago, también me fascina:
 Disfruto mucho estar rodeada de naturaleza y me encantan todo tipo de actividades al aire libre. 
 
 
-**Lago Socó - Río Loretoyacu, Amazonas**
+**Lago Socó - Río Loretoyacu, Puerto Nariño Amazonas**
 ![IMG_3627](https://user-images.githubusercontent.com/98433849/151291911-0985f5f2-b51e-4d9a-92ff-d17851b00ca1.JPG)
